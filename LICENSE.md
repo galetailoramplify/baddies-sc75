@@ -1,4 +1,4 @@
-#  
+#  Experience baddies like never before with baddies Script best, the #1 Script. Includes unlimited stamina and no cooldown for unbeatable performance.
 
 
 
